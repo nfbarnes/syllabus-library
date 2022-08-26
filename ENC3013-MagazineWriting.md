@@ -1,16 +1,18 @@
 # Magazine Writing I
+
+### Course Details
+
 Course Syllabus: ENC 3310.0W61 | Fall 2022
 
 Instructor: Nikki Fragala Barnes, MFA
- 
-
-### Course Details & Contact Information                                                     
 
 Credits: 3
 
 Days: Web, Asynchoronous (Assignments due: Sun/Tues/Thurs)
 
 Room: Online
+ 
+Contact Information                                                     
 
 Contact Info: Inbox via Webcourses / Canvas or nf.barnes@ucf.edu 
 
