@@ -179,35 +179,67 @@ Sun Aug 28, 2022	Discussion Topic Discussion 2: Writing & Culture	due by 11:59pm
 Tue Aug 30, 2022	Discussion Topic Discussion 3: Writing About Art & Media	due by 11:59pm
 
 Thu Sep 1, 2022	Discussion Topic Discussion 4: Purpose & Rhetorical Context	due by 11:59pm
+
 Tue Sep 6, 2022	Discussion Topic Discussion 5: Finding an Angle	due by 11:59pm
+
 Thu Sep 8, 2022	Discussion Topic Discussion 6: Topic Brainstorm	due by 11:59pm
+
 Sun Sep 11, 2022	Discussion Topic Discussion 7: Structure	due by 11:59pm
+
 Tue Sep 13, 2022	Discussion Topic Industry Insights 1: Norman Vanamee	due by 11:59pm
+
 Thu Sep 15, 2022	Assignment Arts & Media Article (750-1000 words) + Process Paper	due by 11:59pm
+
 Sun Sep 18, 2022	Discussion Topic Discussion 8: Intro to Sports & Recreation Writing	due by 11:59pm
+
 Tue Sep 20, 2022	Discussion Topic Discussion 9: Audience Analysis	due by 11:59pm
+
 Thu Sep 22, 2022	Discussion Topic Discussion 10: Persuasive Appeals	due by 11:59pm
+
 Sun Sep 25, 2022	Discussion Topic Discussion 11: Research	due by 11:59pm
+
 Tue Sep 27, 2022	Discussion Topic Discussion 12: Find Your Lead	due by 11:59pm
+
 Thu Sep 29, 2022	Discussion Topic Discussion 13: Topic Brainstorm	due by 11:59pm
+
 Sun Oct 2, 2022	Discussion Topic Discussion 14: Writer's Choice	due by 11:59pm
+
 Tue Oct 4, 2022	Discussion Topic Industry Insights 2: Laura Cole	due by 11:59pm
+
 Thu Oct 6, 2022	Assignment Sports & Recreation Article (750-1000 words) + Process Paper	due by 11:59pm
+
 Sun Oct 9, 2022	Discussion Topic Discussion 15: Intro to Food & Travel Writing	due by 11:59pm
+
 Tue Oct 11, 2022	Discussion Topic Discussion 16: Tone	due by 11:59pm
+
 Thu Oct 13, 2022	Discussion Topic Discussion 17: Language	due by 11:59pm
+
 Sun Oct 16, 2022	Discussion Topic Discussion 18: Sentences	due by 11:59pm
+
 Tue Oct 18, 2022	Discussion Topic Discussion 19: Form	due by 11:59pm
+
 Thu Oct 20, 2022	Discussion Topic Optional: Topic Brainstorm	due by 11:59pm
+
 Tue Oct 25, 2022	Assignment Food & Travel Article (750-1000 words) + Process Paper	due by 11:59pm
+
 Tue Nov 1, 2022	Discussion Topic Industry Insights: Ciera Horton McElroy	due by 11:59pm
+
 Thu Nov 3, 2022	Discussion Topic Discussion 20: Publication Inspiration	due by 11:59pm
+
 Thu Nov 10, 2022	Assignment Magazine Project Proposal	due by 11:59pm
+
 Thu Nov 17, 2022	Assignment Progress Report 1	due by 11:59pm
+
 Tue Nov 22, 2022	Discussion Topic Editorial Notes: Post Your Feature Articles + Feedback HERE	due by 11:59pm
+
 Wed Nov 30, 2022	Assignment Progress Report 2	due by 11:59pm
+
 Wed Dec 7, 2022	Assignment Final: Magazine Project	due by 11:59pm
+
 Thu Dec 8, 2022	Assignment Revision + Process + Self-Evaluation	due by 11:59pm
-Assignment Extra Credit: Arts & Media Article - Writing Center Consultation	 
-Assignment Extra Credit: Food/Travel/Place Article - Writing Center Consultation	 
+
+Assignment Extra Credit: Arts & Media Article - Writing Center Consultation
+
+Assignment Extra Credit: Food/Travel/Place Article - Writing Center Consultation
+
 Assignment Extra Credit: Sports & Leisure Article - Writing Center Consultation	 
