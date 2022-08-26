@@ -14,6 +14,14 @@ Room: Online
 
 Contact Info: Inbox via Webcourses / Canvas or nf.barnes@ucf.edu 
 
+UCF English Department: 12796 Aquarius Agora Drive, Orlando, FL 32816 
+Main Office: TCH 250 (2nd floor of Trevor Colburn Hall)
+Department phone: 407-823-5596
+Deparment email: english@ucf.edu
+
+
+
+
 Office Hours:  Remote office hours will be held via Zoom by appointment. Please inbox me to schedule.
 
 ##### Course Prerequisites: To enroll in this course, you must have earned a grade of C (2.0) or better in ENC 1101 and ENC 1102. Failure to meet the prerequisites for a course can result in failing the course.
