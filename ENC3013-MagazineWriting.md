@@ -169,10 +169,15 @@ For technical support, contact Webcourses@UCF SupportLinks to an external site.
 Date	            Details	
 
 Tue Aug 23, 2022	Quiz Getting Started Quiz	due by 11:59pm
+
 Thu Aug 25, 2022	Discussion Topic Discussion 1: Explore	due by 11:59pm
+
 Fri Aug 26, 2022	Discussion Topic Academic Verification Activity | About Me	due by 4:59pm
+
 Sun Aug 28, 2022	Discussion Topic Discussion 2: Writing & Culture	due by 11:59pm
+
 Tue Aug 30, 2022	Discussion Topic Discussion 3: Writing About Art & Media	due by 11:59pm
+
 Thu Sep 1, 2022	Discussion Topic Discussion 4: Purpose & Rhetorical Context	due by 11:59pm
 Tue Sep 6, 2022	Discussion Topic Discussion 5: Finding an Angle	due by 11:59pm
 Thu Sep 8, 2022	Discussion Topic Discussion 6: Topic Brainstorm	due by 11:59pm
