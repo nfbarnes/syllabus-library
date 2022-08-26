@@ -16,21 +16,22 @@ Contact Information
 
 Contact Info: Inbox via Webcourses / Canvas or nf.barnes@ucf.edu 
 
+Office Hours:  Remote office hours will be held via Zoom by appointment. Please inbox me to schedule.
+
 UCF English Department: 12796 Aquarius Agora Drive, Orlando, FL 32816 
 Main Office: TCH 250 (2nd floor of Trevor Colburn Hall)
 Department phone: 407-823-5596
 Deparment email: english@ucf.edu
 
 
+##### Course Prerequisites: 
+To enroll in this course, you must have earned a grade of C (2.0) or better in ENC 1101 and ENC 1102. Failure to meet the prerequisites for a course can result in failing the course.
 
+##### Textbook: 
+There are no required textbooks for this course. All materials will be accessible online and made available through Webcourses.
 
-Office Hours:  Remote office hours will be held via Zoom by appointment. Please inbox me to schedule.
-
-##### Course Prerequisites: To enroll in this course, you must have earned a grade of C (2.0) or better in ENC 1101 and ENC 1102. Failure to meet the prerequisites for a course can result in failing the course.
-
-##### Textbook: There are no required textbooks for this course. All materials will be accessible online and made available through Webcourses.
-
-##### Course Description: This course will focus on the basics of nonfiction magazine feature writing, including leads, structure, purpose, voice, language, research, and audience analysis. The course introduces students to best practices in writing for online and print publications while improving transferable writing skills and gathering industry insights. As students develop feature articles on such topics as film and music, sports and recreation, food and travel, they examine what it means for writers to be culture-makers while also observing, documenting, and reflecting upon the human impulse to create and share experience. The final project will consist of students collaborating to create an issue of their own web-based magazine.
+##### Course Description: 
+This course will focus on the basics of nonfiction magazine feature writing, including leads, structure, purpose, voice, language, research, and audience analysis. The course introduces students to best practices in writing for online and print publications while improving transferable writing skills and gathering industry insights. As students develop feature articles on such topics as film and music, sports and recreation, food and travel, they examine what it means for writers to be culture-makers while also observing, documenting, and reflecting upon the human impulse to create and share experience. The final project will consist of students collaborating to create an issue of their own web-based magazine.
 
 ##### Course Objectives:
 Read and analyze published magazine articles to explore the magazine industry and learn techniques from active writers/editors
